@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 -----------------
 
-* 🌍  I'm based in Narathiwat, Thailand
+* 🌍  I'm based in Bangkok, Thailand
 * ✉️  You can contact me at [zulfa.bg@gmail.com](mailto:zulfa.bg@gmail.com)
 
 ### Skills
